@@ -1,5 +1,3 @@
-## Hi there 👋
-
 # Bihar SI Old Question Papers
 
 The Bihar Police Subordinate Services Commission (BPSSC) conducts the Sub-Inspector (SI) recruitment exam every year. Thousands of candidates apply for this exam to secure a government job in the police department. Preparing for this exam requires hard work, dedication, and the right strategy. One of the best ways to prepare is by solving old question papers. These papers give a clear idea about the exam pattern, important topics, and the level of difficulty.
